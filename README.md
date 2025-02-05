@@ -13,4 +13,3 @@ This website should include the following tabs:
    b. Vision board  
    c. Daily habits  
 
-I applied for jobs today im so tired so i cant update this. 
